@@ -1,0 +1,1 @@
+[[Cognitive bais]]]: How our emotions affect our decesion making

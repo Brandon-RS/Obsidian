@@ -1,0 +1,3 @@
+- [[affect heuristic]]
+- [[framing effect]]
+- Others
